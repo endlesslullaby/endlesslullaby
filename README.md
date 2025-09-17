@@ -1,4 +1,9 @@
 
-![pQFtQE8teANCrPt4lAh6ddipciqpuqdR5-NeWUImnFXh6VAMPQXE6OWPpW7ZfPUJXkgZvKGUycXSRP0AswDCx60H](https://github.com/user-attachments/assets/3a9faf5b-0a9b-4f37-90df-46bd032aea5f)
+
+
+<img width="1628" height="2560" alt="Без названия48_20250917133554" src="https://github.com/user-attachments/assets/d0913c54-1215-48e9-ae28-c2d7802e18ea" />
+
+
+
 
 
