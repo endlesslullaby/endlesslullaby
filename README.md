@@ -11,6 +11,7 @@
 <img width="4166" height="209" alt="Без названия156_20260408051946" src="https://github.com/user-attachments/assets/2cc0db2c-b8c4-40de-b1c1-48401f3ace3c" />
 
 <img width="1628" height="400" alt="Без названия48_20260408051702" src="https://github.com/user-attachments/assets/f19d9b2f-f270-4f58-a23f-b6202c06ca9e" />
+<img width="317" height="159" alt="images" src="https://github.com/user-attachments/assets/51da3c91-1afc-47ba-9c42-f5ce0ede80f0" />
 (я все еще оформляю соррян мне лень)
 
 
